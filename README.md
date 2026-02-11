@@ -1,5 +1,5 @@
 # bots-de-albion-
-discord de ventas de vots gratis y pagos 
+discord de ventas de bots gratis y pagos 
 
 https://discord.gg/sMWkyQsN
 
